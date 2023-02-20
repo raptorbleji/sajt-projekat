@@ -1,2 +1,0 @@
-# sajt-projekat
-Marko Rapčenko
